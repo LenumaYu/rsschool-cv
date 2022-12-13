@@ -1,1 +1,1 @@
-https://LenumaYu.github.io/rsschool-cv/cv
+https://LenumaYu.github.io/rsschool-cv/
